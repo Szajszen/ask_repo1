@@ -1,0 +1,1 @@
+# Repozytorium GIT 1
